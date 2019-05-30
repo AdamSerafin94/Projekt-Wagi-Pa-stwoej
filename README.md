@@ -1,2 +1,2 @@
-# Projekt-Wagi-Pa-stwoej
+# Projekt-Wagi-Panstwowej
 Jak dla prezydenta
